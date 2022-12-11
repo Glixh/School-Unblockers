@@ -13,3 +13,6 @@
 ## [Ramer Head2](https://e.persoy.com/)
 
 ## [Kazwire Unblocker&games](https://worldhistory.kazwire.com/search)
+
+## [Yandex Unblocker](https://yandex.co.il/)
+You have to translate page from russian to english
